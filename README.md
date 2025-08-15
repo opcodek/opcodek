@@ -1,10 +1,13 @@
-## Hi there 👋
+hi im coding something welcome
 
-- 🔭 I’m currently working on laida external
-- 🌱 I’m currently learning zig
-- 👯 I’m looking to collaborate on anything cheat wise
-- 🤔 I’m looking for help with money
-- 💬 Ask me about roblox exploiting
-- 📫 How to reach me: discord (@opcodek)
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: i know 8+ programming languages
+who are you
+
+opcodek
+
+what do you do
+
+opcodek
+
+gurt: yo
+
+shut the fuck up gurt
